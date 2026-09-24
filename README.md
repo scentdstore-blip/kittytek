@@ -1,0 +1,1 @@
+This is a lightweight proxy designed by me the only me and it is made for schools made to be add free i will try to atleast. But yes you heard me a proxy it will have games kind of i think i dont know yet but i will also add a web browser and so much more and i think even a ai app for you pesky ai cheaters.
